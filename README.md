@@ -1,4 +1,4 @@
-# Artyom Tuzov
+# Artyom Tuzov - CV/ML Engineer (Robotics)
 
 ### CV and contacts (open for hiring)
 
